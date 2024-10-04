@@ -1,56 +1,38 @@
-**REZKALLAH**
-![alt tag](file:///Users/mohammedrezkallah/Downloads/telecharger%20image%20informaticien%20-%20Google%20Search.html
-**Abdelkader**       
+**REZKALLAH Abdelkader**
 
-**5 Rue André Malraux**
-
-**78500 Sartrouville**
-
-**Né le 04/12/1982**
-
-**Tél. :01.39.15.85.04**
-
-      **: 06.24.81.10.11**
-
-**Mail : rezkallah.a@live.fr**
-
-**Nationalité Française**
+**Mail : moharezkallah78@gmail.com**
+![Photo](https://www.gettyimages.fr/detail/photo/blank-pc-monitor-mockup-with-white-screen-image-libre-de-droits/1370800508?adppopup=true)
 (file:///Users/mohammedrezkallah/Downloads/telecharger%20image%20informaticien%20-%20Google%20Search.html)
-                                                                                                          **Permis B+véhicule**
-
-                                                                                                          **Permis D**
-
-                                                                                                          **Permis C+EC+FIMO+ADR**
-
+                                                                                                       
 **DOMAINES DE COMPETENCES**
 
-\-Câblage d’armoires électriques
+-Câblage d’armoires électriques
 
-\-Dépannages électriques
+-Dépannages électriques
 
-\-Lecture de plan
+-Lecture de plan
 
 **EXPERIENCES PROFESSIONNELLES**
 
-**Sept 2015**                                    _Conducteur de bus (RATP_ _CDI)_
+**Sept 2015**                             _Conducteur de bus (RATP_ _CDI)_
 
 **Juillet 2012-Juin 2015**                _Conducteur poids lourd (Conduite de camion benne)_
 
-**Mars2010**                                   _Conducteur de bus_
+**Mars2010**                              _Conducteur de bus_
 
-**Mai-Juillet 2009**                        _Conducteur de bus_
+**Mai-Juillet 2009**                      _Conducteur de bus_
 
-**Nov 2008-Mars 2009**                  _Conducteur de bus_
+**Nov 2008-Mars 2009**                    _Conducteur de bus_
 
 **Octobre-Nov 2008**                     _Agent de sécurité et agent d’accueil société STAND UP_
 
 **Mai-Aout 2008**                          _Conducteur de bus_          
 
-**Avril -Juillet 2007**                         _Chauffeur livreur sanitaire_
+**Avril -Juillet 2007**                    _Chauffeur livreur sanitaire_
 
 **Juin-Aout 2006**                         _Agent de sécurité et agent d accueil société STAND UP Paris_
 
-**Nov2004-Février 2005**                _Agent de sécurité et agent d accueil société STAND UP Paris_
+**Nov2004-Février 2005**                   _Agent de sécurité et agent d accueil société STAND UP Paris_
 
 **FORMATIONS**
 
@@ -60,23 +42,23 @@
 
 **Oct 2010-Juin 2011                    Formation AFPA électricien de maintenance des systèmes automatisés**
 
-**Mai-Juin 2011**                           _\-Stage en entreprise Société Schindler Nanterre_
+**Mai-Juin 2011**                              -Stage en entreprise Société Schindler Nanterre_
 
                                                _-Maintenance des ascenseurs_
 
                                                _-Dépannage des ascenseurs_
 
-                                               _-Visite d’inspection des ascenseurs_
+                                                -Visite d’inspection des ascenseurs_
 
 **Mars 2008                                Formation FIMO voyageurs**
 
-**2001-2002                                   Bac Pro (Equipements installations électriques)**
+**2001-2002                                Bac Pro (Equipements installations électriques)**
 
                                                **Lycée Jules Verne à Sartrouville**
 
-**Mai-juin 2002**                            _\-Stage en entreprise Société ARAITEC Sartrouville_
+**Mai-juin 2002**                              -Stage en entreprise Société ARAITEC Sartrouville_
 
-                                               _-Câblages d armoires_
+                                                -Câblages d armoires_
 
                                                _-Maintenance électrique_
 
